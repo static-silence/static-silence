@@ -1,6 +1,6 @@
 <img width="1280" height="429" alt="Image" src="https://github.com/user-attachments/assets/b452b648-fbd6-4ae2-87ec-e93b942f2c00" />
 
-<img width="1200" height="585" alt="Image" src="https://github.com/user-attachments/assets/8e7bd69b-2de6-4e3c-9c26-d4c0ed348a69" />
+<img width="736" height="559" alt="Image" src="https://github.com/user-attachments/assets/383a436f-dae5-4e72-8ee4-4b6b63506f89" />
 
 「   "you can't escape me vincent, I'll     haunt you as long as im breathing." 」
    
